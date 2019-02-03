@@ -1,0 +1,2 @@
+# EduBomb
+Education is da 💣
